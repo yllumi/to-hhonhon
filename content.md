@@ -1,5 +1,3 @@
-# Isyarat
-
 "Serius Bro?" aku memastikan. Ga terlalu kaget *sih*. Banyak sebab yang bisa memicu hal tersebut.
 
 "Iya bro. Gue mimpiin ga cuma sekali. Lebih lah dari 5 kali." Kata Hendra lewat chat WhatsApp.
