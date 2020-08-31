@@ -36,7 +36,7 @@
       let noUrl = "https://api.telegram.org/bot945874573:AAFcYB8MkreU_sJ7AGV6OQIU8PVQ0YKz028/sendMessage?chat_id=233934050&text=No";
       let thinkUrl = "https://api.telegram.org/bot945874573:AAFcYB8MkreU_sJ7AGV6OQIU8PVQ0YKz028/sendMessage?chat_id=233934050&text=Istikharah%20dulu.%20Sabar%20eaa";
 
-        fetch('/content.md')
+        fetch('content.md')
           .then(function(response){
             return response.text().then(function(text) {
               var converter = new showdown.Converter(),
