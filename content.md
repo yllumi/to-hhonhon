@@ -334,7 +334,16 @@ Aku tidak tahu apakah itu cuma sekedar bunga tidur biasa atau mimpi khusus. Satu
 
 Kulihat jam di smartphoneku menunjukkan pukul 3. Aku bermimpi bersama Wina. *Halu* ini harus segera kuakhiri.
 
-## Tanda Tangan
+## Autograf
+
+Seperti biasa setiap hari Senin semua mitra mentoring bisnis yang aku ikuti diwajibkan untuk mengikuti pembinaan pekanan. Pembinaan pekanan dilakukan secara online pada pukul 3 dini hari. Sebelum meeting dimulai semua mitra diharuskan untuk shalat tahajjud dahulu minimal 2 rokaat. Baru kali ini aku menemukan komunitas bisnis yang ga cuma bahas soal kewirausahaan dan finansial. Bahkan Ramadhan kemarin sebagian besar pembinaan diisi oleh para ustadz dan ulama.
+
+Pembinaan kali ini berfokus pada bagaimana mendatangkan percepatan rezeki dengan sinergi sayap-sayap bidadari. Maksudnya adalah keridhaan orang tua dan juga pasangan. Dalam menjalankan bisnis, orang tua perlu mengetahui bisnis apa yang sedang kita jalani. Dengan begitu mereka dapat mendoakan kesuksesan bisnis kita dengan lebih ridha. Begitu pula dengan keridhaan pasangan hidup kita, suami atau istri. Pasangan hidup perlu tau apa yang kita usahakan sehingga mereka dapat memahami dan mendukung dengan sepenuh hati. Dukungan orang tua dan pasangan akan mempercepat kesuksesan dalam bisnis.
+
+Pembahasan akhirnya menjalar ke problematika para jomblo. Entah berapa banyak pasangan yang menunda-nunda pernikahan hanya karena uangnya belum cukup untuk resepsi di gedung dan lain-lain. Ada juga yang menunda karena faktor kebiasaan dan adat-istiadat. Misalnya menunda karena kakaknya belum menikah. Mentor kami berpesan untuk menyederhanakan resepsi. Kalaupun ada rezeki lebih, lebih baik besarkan di mahar, bukan di resepsi. Selain menyederhanakan, juga harus menyegerakan. Rahmat Allah dekat dengan hamba yang bersegera dalam kebaikan.
+
+
+
 
 // hoki beruntung, husnuzhan
 // Membuat surat penawaran ta'aruf, digital
@@ -343,7 +352,7 @@ Kulihat jam di smartphoneku menunjukkan pukul 3. Aku bermimpi bersama Wina. *Hal
 // Menjelang pulang kusuruh dia mengambil surat yang ada di meja kerjaku
 // Menunggu sinyal terakhir
 
-## Epilog
+## Isyarat Terakhir
 
 ''*krik krik*'' suara tanda ada pesan masuk ke smartphonenku. Saat itu aku sedang *on-wire* mengerjakan bagian penting dari sistem informasi kantorku. *Task* ini harus selesai hari ini, karena harus *launch* awal bulan depan atau sekitar 2 hari lagi. Besok harus sudah bisa dites supaya lusa bisa diumumkan sesuai jadwal.
 
