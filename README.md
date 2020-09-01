@@ -1,3 +1,7 @@
+# Isyarat
+
+
+
 "Serius Bro?" aku memastikan. Ga terlalu kaget *sih*. Banyak sebab yang bisa memicu hal tersebut.
 
 "Iya bro. Gue mimpiin ga cuma sekali. Lebih lah dari 5 kali." Kata Hendra lewat chat WhatsApp.
@@ -276,7 +280,7 @@ Aku pun memutuskan untuk pulang. Saat menuruni tangga, aku melihat sebuah lemari
 
 ## Bunga Tidur
 
-"Bro, gue butuh pendapat ente. Lagi nyantai *kan*?" Aku membuka percakapan dengan Hendra.
+"Bro, gue butuh pendapat ente. Lagi nyantai *kan*?" Aku membuka percakapan dengan Hendra via chat.
 
 "Boleh Bro, *mangga*. Tapi sebelum itu, gue mau ngasih tau. Boleh ga sih gue ceritain" jawaban Hendra membuatku penasaran.
 
@@ -284,7 +288,7 @@ Aku pun memutuskan untuk pulang. Saat menuruni tangga, aku melihat sebuah lemari
 
 "Gue udah beberapa kali mimpi, kang Harry nikah sama si Wina" jawab Hendra diikuti emoticon senyum.
 
-"Serius Bro?" lagi-lagi Wina. Ada apa ini? "Mungkin ente sempet terpapar cerita ini, dari kakak ente mungkin, atau dari founder yang lain?" Karena sebelumnya aku pernah bahas perihal Wina bersama teman-teman founder dulu.
+"Serius Bro?" lagi lagi Wina. Belum sempat aku minta pendapat informasi sudah datang duluan. "Mungkin ente sempet terpapar cerita ini, dari kakak ente mungkin, atau dari founder yang lain?" Karena sebelumnya aku pernah bahas perihal Wina bersama teman-teman founder dulu.
 
 "Ah masa sih. Engga deh kayaknya" jawab Hendra.
 
@@ -404,11 +408,25 @@ Wina mengembalikan buku itu padaku. Di halaman pertama ia torehkan tanda tangan 
 
 "Kenapa kak?" tanya Wina balik sambil tetap fokus pada laptopnya. Itu pertanyaan yang tidak aku perkirakan.
 
-"Eee.. saya mau nitip, sambel hehe.." jawabku, maksudnya nitip pesan sambel kemasan yang diproduksi oleh ibunya Wina. Saat kemarin dia balik lagi ke Bandung, dia membawa sambel itu. Rasanya nendang banget. Aku sudah pernah pesan sebelumnya. Untunglah sambel ibunya Wina itu terlintas di ingatanku.
+"Eee.. saya mau nitip, sambal hehe.." jawabku, maksudnya nitip pesan sambal kemasan yang diproduksi oleh ibunya Wina. Untunglah sambal ibunya Wina itu terlintas di ingatanku. Saat kemarin dia balik lagi ke Bandung, dia membawa sambal itu. Nama brandnya Sambal Nyai. Rasanya nendang banget. Aku sudah pernah pesan sebelumnya.
 
 "Ga tau kak, kan baru pulang kemarin" jawab Wina. Kali ini dia bilang sambil melihatku.
 
-"Oh iya ya. Ya udah nanti aja nyantai." kataku. Aku khawatir dia akan menawarkan pengiriman online karena aku berharap untuk selanjutnya aku mencicipi sambelnya langsung di atas meja makan rumah mereka. Waduh, mulai berhalu lagi ini haha..
+"Oh iya ya. Ya udah nanti aja nyantai." kataku. Aku khawatir dia akan menawarkan pengiriman online karena aku berharap untuk selanjutnya aku mencicipi sambalnya langsung di atas meja makan rumah mereka. Waduh, mulai berhalu lagi ini haha..
+
+---
+
+sambal Nyai memang enak, bikin nafsu makan meningkat berkali lipat. Aku jadi harus menambah nasi karena nasinya keburu habis. Masih ada sambal tersisa di piringku, sayang sekali kalau tidak dimakan. Tapi aku tidak sanggup juga kalau harus makan sambalnya saja tanpa lauk atau nasi.
+
+"Ini udah pada makan belum?" tanyaku pada karyawan. Masih ada nasi untuk satu porsi lagi di *magic com*. Perusahaan menyediakan beras untuk dimasak oleh karyawan, sehingga karyawan cukup bekal atau beli lauk saja untuk makan siang.
+
+"Wina belum," dia mengacungkan tangan kanannya. Aku mengurungkan niat untuk nambah nasi. *Duh*, aku tidak tega bila melihat ada sisa makanan tidak termakan. Mungkin itu yang jadi penyebab perutku semakin buncit. Setiap kali makan-makan di luar bareng keluarga, aku tidak pernah memesan menu, karena menu yang dipesan anggota keluarga yang lain tidak pernah habis. Aku selalu jadi bagian *sweeping*. Untungnya masih ada beberapa butir dim sum yang juga dibawa oleh Wina. Satu dim sum cukup untuk jadi teman makan sisa sambal ini.
+
+Sembari itu, aku membuka aplikasi Instagram. Kulihat Wina baru saja memposting gambar baru. Kali ini kombinasi antara fotonya dan gambar 2D buatannya. Lucu sekali dan enak dilihat. Tapi ada satu yang mengganjal hati. Aku coba *zoom in* foto itu ke bagian lengan Wina. Kulihat persis sebuah cincin melingkar di jari lengan Wina pada foto tersebut.
+
+Ternyata benar, bakal jodoh bisa hilang direbut orang. Siapa cepat dia dapat. Aku berpikir apa-apaan aku selama ini, sibuk dengan isyarat tidak jelas yang boleh jadi itu muncul karena kesadaranku terfokus pada Wina. Sehingga apa-apa tentang Wina kuanggap sebagai tanda-tanda kemajuan. Apa-apaan aku ini?
+
+Terus kenapa Hendra tidak memberitahuku kalau Wina sudah ada yang meminang??
 
 
 
@@ -436,23 +454,31 @@ Aku mengambil hidangan yang disediakan. Ada cukup banyak lauk, jauh lebih banyak
 
 "Yeuh, kalo sudah ada niat, jangan ditunda-tunda. Segerakan. Kalau belum pasti, pastikan." Nasihatnya mirip dengan nasihat mentor bisnisku saat pembinaan pekanan Senin lalu. "Niatkan untuk ibadah karena Allah. Kalau agamanya sudah baik, dan kamunya *sreg*, dilihat *bikin* nyaman, *geura puguhkeun*!" maksudnya segera pastikan.
 
-"Satu lagi," Abah seolah ingin memungkas nasihat, "Kita tidak tahu siapa yang akhirnya bakal jadi jodoh kita. Tapi siapapun itu, kalau niatnya karena Allah, in syaa Allah pasti dimudahkan. Kalaupun ditolak, tinggal cari lagi yang lain, ga akan *ngeper* karena sejak awal niat kita untuk beribadah." Nasihat Abah membuatku merasa tercerahkan. "Tapi kalau Harry mah jigana moal ditolak sih hehe.." Kalimat ini membuatku semakin optimis. "Tapi andaikata ditolak pun ga masalah, berarti memang tidak cocok buat antum." Kalimat terakhir ini membuatku stabil kembali. Aku seperti membayangkan sedang memasukkan semua angan-angan liarku dengan Wina bila jadi menikah ke dalam satu lemari besar dan menutupnya rapat-rapat, menguncinya dan kusimpan kuncinya di tempat yang hanya akan kutemukan lagi bila aku jadi menikah dengannya. Kupikir ini adalah tindakan strategis yang harus ditempuh sebagai seorang pemimpin, mulai dari memimpin diri sendiri.
+"Satu lagi," Abah seolah ingin memungkas nasihat, "Kita tidak tahu siapa yang akhirnya bakal jadi jodoh kita. Tapi siapapun itu, kalau niatnya karena Allah, in syaa Allah pasti dimudahkan. Kalaupun ditolak, tinggal cari lagi yang lain, ga akan *ngeper* karena sejak awal niat kita untuk beribadah." Nasihat Abah membuatku merasa tercerahkan. "Tapi kalau Harry mah jigana moal ditolak sih hehe.." Kalimat ini membuatku semakin optimis. "Tapi andaikata ditolak pun ga masalah, berarti memang tidak cocok buat antum." Kalimat terakhir ini membuatku stabil kembali. Aku seperti membayangkan sedang memasukkan semua angan-angan liarku dengan Wina bila jadi menikah ke dalam satu lemari besar dan menutupnya rapat-rapat, menguncinya dan kulempar kuncinya ke lautan. Seorang *leader* harus berdiri tangguh dan tak terganggu dengan hal remeh-temeh.
 
-"In syaa Allah, Bah" jawabku pendek dan yakin.
+"In syaa Allah, Bah" jawabku pendek dan yakin. Mungkin aku memang sudah harus *move on*. Lagi-lagi *move on*. "Tenang Bah, saya sudah biasa ditolak saat berjualan BP. Jadi kalau ada wanita yang menolak rasa-rasanya saya bisa tahan hehe.."
 
-"Jadi kapan mau memastikan?" tanya Abah sambil menatap mataku menunggu aku memberikan jawaban tegas.
+"Jadi kapan mau memastikan?" tanya Abah sambil menatap mataku menunggu aku memberikan jawaban tegas. Aku sedang tidak ingin membahas hal itu.
 
-"In syaa Allah besok" kupikir tidak perlu menunggu Wina pulang kampung dulu.
+"Secepatnya Bah" jawabku ringkas.
 
-"Tapi Bah, dia teh sekantor sama saya. Kira-kira bakal ngaruh ga ya ke kerjaan kantor?" tanyaku meminta pendapat.
+Aku tidak berlama-lama di kantor PC. Sesaat setelah mencuci tangan dan piring bekas sendiri, aku langsung pamit ke semua anggota yang masih ada. Termasuk ke Abah dan jajaran tasykil lainnya. Sampai di rumah aku langsung mengirim pesan ke Hendra, mencoba untuk mengklarifikasi sekali lagi apa memang benar Wina sudah ada yang meminang.
 
-"Hmm.. pasti bakal ngaruh sih, baik itu bila dia menerima ataupun menolak. Tergantung bagaimana antum meyakinkan dia untuk tetap profesional dalam bekerja." jawab Abah. "Ga apa-apa, bismillah aja"
+"Apa? Masa sih? Coba lihat fotonya," Hendra sepertinya juga belum tau hal ini. Aku mengirimkan URL postingan Wina yang mengenakan cincin.
 
-Aku tidak berlama-lama di kantor PC. Sesaat setelah mencuci tangan dan piring bekas sendiri, aku langsung pamit ke semua anggota yang masih ada. Termasuk ke Abah dan jajaran tasykil lainnya. Aku bilang ada tugas masa depan yang menunggu untuk dieksekusi. Mereka bilang ciee ciee.. aku respon dengan tertawa saja.
+"Hahaha.. itu  mah cincin biasa. Dipasangnya juga di jari tengah, bukan jari manis." kata Hendra.
+
+"Masa sih? Coba tolong ente tanya. Untung ane belum kirim proposal" kataku supaya benar-benar clear.
+
+Tak lama kemudian Hendra mengirimkan screenshot percakapan dia dengan Wina. Ternyata memang belum. Apa-apaan aku ini? Sibuk dan *riweuh* sama hal yang belum jelas haha..
+
+"Jadi masih ada kesempatan nih?" tanyaku pada Hendra.
+
+"Ayolah maju teruuus!" jawab Hendra sambil mengirimkan sticker foto dia dengan teks bertuliskan GAMBATTE!
 
 * * *
 
-Semalaman suntuk aku membuat tulisan pendek untuk menjelaskan duduk perkara yang sedang kualami ini. Di bagian akhir tulisan itu aku membuat paragraf pamungkas yang menjelaskan maksud dari tulisan tersebut. Ya, aku mengurungkan niatku untuk memberikan CV taaruf secara langsung kepada Wina. Hanya sepucuk surat digital yang nantinya akan kusimpan di website pribadiku dan kuberikan tautan untuk mengaksesnya kepada Wina via WhatsApp. Aku tidak terlalu yakin apakah pesan yang kutulis ini cukup jelas untuk memberi tahu Wina kalau aku punya maksud untuk melamarnya. Karenanya di bagian akhir tulisan tersebut aku menegaskan pertanyaan yang harus dia jawab YA atau TIDAK. Aku sudah menyiapkan dua buah tombol dengan label Ya dan Tidak yang bisa dia tekan salah satunya, yang nantinya tombol tersebut akan mengirimkan notifikasi ke aplikasi Telegram Messengerku via Telegram Bot yang sudah kubuat.
+Semalaman suntuk aku membuat tulisan pendek untuk menjelaskan duduk perkara yang sedang kualami ini kepada Wina. Di bagian akhir tulisan itu aku membuat paragraf pamungkas yang menjelaskan maksud dari tulisan tersebut. Ya, aku mengurungkan niatku untuk memberikan CV taaruf secara langsung kepada Wina. Hanya sepucuk surat digital yang nantinya akan kusimpan di website pribadiku dan kuberikan tautan untuk mengaksesnya kepada Wina via WhatsApp. Aku tidak terlalu yakin apakah pesan yang kutulis ini cukup jelas untuk memberi tahu Wina kalau aku punya maksud untuk melamarnya. Karenanya di bagian akhir tulisan tersebut aku menegaskan pertanyaan yang harus dia jawab YA atau TIDAK. Aku sudah menyiapkan dua buah tombol dengan label Ya dan Tidak yang bisa dia tekan salah satunya, yang nantinya tombol tersebut akan mengirimkan notifikasi ke aplikasi Telegram Messengerku via Telegram Bot yang sudah kubuat.
 
 Seharian di kantor kali ini aku tidak fokus bekerja. Aku menunggu jam sore kepulangan karyawan agar aku bisa segera memberikan link tulisan ini kepada Wina. Aku ingin dia membacanya di kosannya. Sisa waktu menuju kesana kuhabiskan dengan membaca buku karya Wina yang kemarin sudah dia tandatangani. Belum sempat kuberikan kepada adikku karena aku belum berkunjung lagi ke rumah ibu mertua.
 
