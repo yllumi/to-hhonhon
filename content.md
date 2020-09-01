@@ -344,11 +344,24 @@ Dari situ pembahasan menjalar ke problematika para jomblo. Entah berapa banyak p
 
 Apakah ini bagian dari isyarat untukku menyegerakan? Mungkin saja kebetulan, tapi tidak ada kebetulan di sisi Allah. Semua sudah *by design*. Kadang suka berpikir bagaimana kalau ditolak haha.. Aku lalu kembali mengingat materi yang sudah pernah lupelajari, bahwa kepasrahan kita kepada Allah akan mendatangkan kebaikan di sisi Allah. Setiap hal yang kutemui yang kuanggap isyarat adalah bagian dari *husnuzhan*-ku kepada Allah. Bilapun tidak jadi, maka tentulah ada hal lain yang Allah ingin aku belajar darinya, dan tentunya itu pun baik untukku.
 
-Selepas shalat shubuh aku kembali duduk di depan laptop. Aku membuka satu dokumen yang dulu pernah kubuat, dokumen *curriculum vitae* pribadi. Tapi CV yang ini sedikit berbeda. Ini CV taaruf. Ada tambahan informasi lain seperti gambaran fisik diri, gambaran keluarga, ikhtiar kesiapan menikah, visi dan misi pernikahan, kriteria calon pasangan, sampai harapan-harapan pasca pernikahan. Aku merasa perlu memperbaharui isi dokumen tersebut, terutama setelah banyak wawasan baru yang kudapatkan dari kelas pranikah online beberapa waktu yang lalu. Informasi kelas online itu juga kudapatkan dari Instagram Story Wina. Seolah ia mengatakan kalau ingin melamarku upgrade dulu ilmu tentang pernikahannya. Haha.. lagi-lagi halu. Sepertinya aku memang punya potensi menjadi seorang penulis novel dengan bakat imajinasiku ini.
+Selepas shalat shubuh aku kembali duduk di depan laptop. Aku membuka satu dokumen yang dulu pernah kubuat, dokumen *curriculum vitae* pribadi. Tapi CV yang ini sedikit berbeda. Ini CV taaruf. Ada tambahan informasi lain seperti gambaran fisik diri, gambaran keluarga, ikhtiar kesiapan menikah, visi dan misi pernikahan, kriteria calon pasangan, sampai harapan-harapan pasca pernikahan. CV ta'aruf ini digunakan sebagai media perkenalan tahap awal bagi seseorang yang ingin melakukan ta'aruf. Aku tidak tau seefektif apa penggunaan CV ta'aruf ini dalam prosesnya di lapangan. Tapi kali ini aku akan menggunakan CV ta'aruf untuk memperkenalkan diriku sedikit lebih dalam, dan juga supaya dia lebih mudah saat menjelaskan tentang diriku kepada orang tuanya nanti.
 
+Aku merasa perlu memperbaharui beberapa bagian dari isi dokumen CV ta'arufku, terutama setelah banyak wawasan baru yang kudapatkan dari kelas pranikah online beberapa waktu yang lalu. Oh iya, aku baru ingat kalau informasi kelas pranikah online itu juga kudapatkan dari Instagram Story Wina. Seolah ia mengatakan kepada siapapun yang ingin melamarnya supaya upgrade terlebih dulu ilmu dan wawasan tentang pernikahan.
 
+Sekali lagi udara dingin mengalir dari atap genting tetangga masuk ke kamarku yang ada di lantai dua, menggodaku untuk kembali menarik selimut dan berbaring lagi. Matahari sudah mulai naik, langit sudah mulai terang. Sudah beberapa pekan sejak aku mulai kembali membiasakan diri tidak tidur lagi setelah shubuh. Tapi pagi itu kepala dan kelopak mataku kompak menjatuhkan tubuhku kembali ke atas kasur tipis yang hangat.
 
-// Membuat surat penawaran ta'aruf, digital
+* * * 
+
+Rahman sedang sibuk menyiapkan kamera di ruang tamu ketika aku sampai di kantor. Hari ini adalah jadwalnya membuat video intro untuk dokumentasi dan manual penggunaan aplikasi untuk klien. Rumput sintetis di ruang tamu seolah berdiri memanggilku untuk rebahan di atasnya. Aku duduk sebentar disitu sambil memperhatikan situasi kantor yang cukup senyap.
+
+"Pada kemana Man yang lain?" tanyaku.
+
+"Masih pada di jalan kang" jawab Rahman.
+
+Aku masuk ke ruang karyawan. Baru ada beberapa orang saja disana, dan tidak kutemukan sosok Wina. Apakah dia tidak masuk kerja?
+
+Aku masuk ke ruang kerja founder dan menyalakan laptop seperti biasa. 
+
 // Diberikannya saat Wina sedang di rumah supaya dia bisa langsung Konsul sama ortunya
 // Aku bertanya kapan dia pulang
 // Menjelang pulang kusuruh dia mengambil surat yang ada di meja kerjaku
