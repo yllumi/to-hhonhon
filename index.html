@@ -24,6 +24,14 @@
           <h1 class="mt-5 mb-5">Isyarat</h1>
 
           <div id="content"></div>
+
+          <div class="my-3 bg-secondary p-3" id="questioner">
+            <p class="text-dark">Apakah Kamu bersedia menerima lamaran Harry?</p>
+            <button id="ya" class="btn btn-primary">Ya</button>
+            <button id="tidak" class="btn btn-primary">Tidak</button>
+          </div>
+
+          <p><em>To be continue..</em></p>
         </div>
       </div>  
     </div>
@@ -37,16 +45,30 @@
     <script>
       let yesUrl = "https://api.telegram.org/bot945874573:AAFcYB8MkreU_sJ7AGV6OQIU8PVQ0YKz028/sendMessage?chat_id=233934050&text=Yes";
       let noUrl = "https://api.telegram.org/bot945874573:AAFcYB8MkreU_sJ7AGV6OQIU8PVQ0YKz028/sendMessage?chat_id=233934050&text=No";
-      let thinkUrl = "https://api.telegram.org/bot945874573:AAFcYB8MkreU_sJ7AGV6OQIU8PVQ0YKz028/sendMessage?chat_id=233934050&text=Istikharah%20dulu.%20Sabar%20eaa";
 
-        fetch('content.md')
-          .then(function(response){
-            return response.text().then(function(text) {
-              var converter = new showdown.Converter(),
-              html = converter.makeHtml(text);
-              $('#content').html(html);
-            });
+      fetch('content.md')
+        .then(function(response){
+          return response.text().then(function(text) {
+            var converter = new showdown.Converter(),
+            html = converter.makeHtml(text);
+            $('#content').html(html);
           });
+        });
+
+        $('#ya').on('click', function(){
+          fetch(yesUrl).then(function(response){
+            console.log(response);
+            alert('Terima kasih sudah memilih. Silakan tunggu follow up selanjutnya');
+            $('#questioner').remove();
+          })
+        });
+        $('#tidak').on('click', function(){
+          fetch(noUrl).then(function(response){
+            console.log(response);
+            alert('Terima kasih sudah memilih :D');
+            $('#questioner').remove();
+          })
+        })
     </script>
   </body>
 </html>
