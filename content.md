@@ -14,6 +14,8 @@ Roda motor listrik kecil itu berputar kencang, membawa Willy, anak pertamaku ber
 
 Ini adalah kisah tentang bagaimana aku menangkap isyarat, dan memaknainya sebagai bahan pertimbangan untuk menentukan satu keputusan terpenting dalam hidupku.
 
+
+
 ## Imam Hanbali
 
 Suasana masjid maghrib ini tidak berbeda dari hari-hari biasanya, selain karpetnya yang tergulung di pojokan. Ini kali pertama aku kembali shalat di masjid, setelah *lockdown* yang menahanku untuk melangkah sholat ke sana. Bukan karena masjidnya dikunci rapat, tapi karena pilihanku atas pendapat untuk tetap diam di rumah agar tidak tertular atau menularkan. Mungkin juga karena imanku yang masih lemah. Paling tidak, masih ada rasa tidak nyaman ketika jauh dari tempat sujud berjamaah itu. Saat ini sudah 3 bulan berlalu sejak kebijakan *lockdown*, dan 6 bulan sejak kematian istriku.
@@ -37,6 +39,8 @@ Kupikir sedikit dari ruang kosong di dalam hatiku mulai terisi. Aku kembali ke r
 Aku jatuhkan badanku ke kasur tipis di kamarku. Kubuka smartphone dan kunyalakan Netflix. Baru saja kemarin kuunduh film Dilan, semuanya, yang 1990, 1991 dan Milea. Ah, sungguh ironis melihat bagaimana aktivitasku sama sekali tidak mendukung pemikiranku. Tapi aku terlalu malas untuk mengerjakan hal lain selain rebahan. Kusetel juga film Dilan itu. Judul pertama kutonton dengan biasa saja sampai hampir selesai, ketika aku menemukan satu dialog yang nampaknya tidak asing di telinga. Aku menjeda film dan tertegun sejenak, lalu memutar ulang bagian itu. Dialog itu membangkitkan emosiku akan sesuatu. Aku yakin belum pernah menonton film ini sebelumnya, dan tidak ikatan emosi antara aku dengan film ini kecuali karena aku pernah membaca bukunya saja. Aku setel lagi berulang kali detik-detik dialog tersebut. Ternyata bukan dialognya yang familiar, tapi nada bicara dan suara Milea di bagian itu yang mengusik ingatanku.
 
 Apa aku pernah bertemu Milea, atau Vanesha sang artis pemeran Milea sebelumnya?
+
+
 
 ## Suara Milea
 
@@ -71,6 +75,8 @@ Tapi kenapa Wina? Kenapa dialog Milea di film itu membangkitkan ingatan emosiona
 Dulu bahkan aku sempat dimintai bantuan oleh Hendra untuk mencarikan jodoh buat Wina. Hendra berpesan untuk mencarikan calon suami yang sholeh dan diutamakan kader Persis. Karena aku termasuk anggota yang aktif di ormas Pemuda Persis, sehingga relatif cukup mudah bagiku menjangkau kader-kader Pemuda Persis yang masih lajang. Aku coba menawarkan taaruf ke beberapa kader yang sepertinya cocok bila bersanding dengan Wina. Meskipun akhirnya tidak ada satu pun yang jadi. Sungguh, jodoh adalah ketentuan Allah. Ia Maha Berkehendak menyandingkan di antara hamba-hambaNya untuk berjodoh dengan pertimbangan yang sempurna sesuai dengan Kemahaluasan ilmuNya.
 
 Jadi, ada apa dengan Wina?
+
+
 
 ## WinWin Solution
 
@@ -196,6 +202,8 @@ Suhu udara malam ini lebih dingin dari biasanya. Tetapi kami tetap berhenti di s
 
 "Gue coba mantapkan hati dulu Bro"
 
+
+
 ## Rem
 
 "Bro, kayaknya gw mau melayangkan surat penawaran" kukirim pesan kepada Erlang.
@@ -263,6 +271,8 @@ Akhirnya aku putuskan untuk pergi ke toko buku dan membeli buku karya Wina. Aku 
 Tidak butuh waktu lama untuk sampai ke toko buku Gramedia Merdeka Bandung, karena masih pandemi jadi suasana jalanan kota Bandung tidak terlalu padat. Aku segera parkirkan motorku dan masuk ke gedung Gramedia. Tidak sulit untuk mencari buku karya Wina karena ia seolah sudah menyambutku di depan elevator. Bukunya masuk jajaran *best seller*. Gambar covernya khas dengan style gambar Wina. Detik itupun aku sadar kalau aku sudah memegang buku yang sama di tasku, punya adikku yang ia ingin aku untuk memintakan tanda tangan Wina didalamnya. *Subhanallah*. Sekalut itukah aku? Engga *lah*, aku cuma benar-benar lupa saja.
 
 Aku pun memutuskan untuk pulang. Saat menuruni tangga, aku melihat sebuah lemari kaca yang di dalamnya ada surat yang tersegel dengan stempel lilin, seperti yang ada di film-film jaman dulu. Kupikir ini akan jadi ide yang menarik, bila surat penawarannya kubuat seperti ini. Aku pun kembali dengan motorku pulang ke Padalarang tanpa membeli buku apapun. Melihat apa yang kujalani seharian ini, aku berkesimpulan untuk menahan diri tidak tergesa-gesa. Ada dua agenda yang harus aku selesaikan sebelum melayangkan surat penawaran taaruf kepada Wina, membaca buku karyanya, dan menggali informasi lebih dalam tentang Wina kepada Hendra, Sang Promotor. 
+
+
 
 ## Bunga Tidur
 
@@ -334,6 +344,8 @@ Aku tidak tahu apakah itu cuma sekedar bunga tidur biasa atau mimpi khusus. Satu
 
 Kulihat jam di smartphoneku menunjukkan pukul 3. Aku bermimpi bersama Wina. *Halu* ini harus segera kuakhiri.
 
+
+
 ## Autograf
 
 Seperti biasa setiap hari Senin semua mitra mentoring bisnis yang aku ikuti diwajibkan untuk mengikuti pembinaan pekanan. Pembinaan pekanan dilakukan secara online pada pukul 3 dini hari. Sebelum meeting dimulai semua mitra diharuskan untuk shalat tahajjud dahulu minimal 2 rokaat. Baru kali ini aku menemukan komunitas bisnis yang ga cuma bahas soal kewirausahaan dan finansial. Bahkan Ramadhan kemarin sebagian besar pembinaan diisi oleh para ustadz dan ulama.
@@ -350,39 +362,148 @@ Aku merasa perlu memperbaharui beberapa bagian dari isi dokumen CV ta'arufku, te
 
 Sekali lagi udara dingin mengalir dari atap genting tetangga masuk ke kamarku yang ada di lantai dua, menggodaku untuk kembali menarik selimut dan berbaring lagi. Matahari sudah mulai naik, langit sudah mulai terang. Sudah beberapa pekan sejak aku mulai kembali membiasakan diri tidak tidur lagi setelah shubuh. Tapi pagi itu kepala dan kelopak mataku kompak menjatuhkan tubuhku kembali ke atas kasur tipis yang hangat.
 
-* * * 
+* * *
 
-Rahman sedang sibuk menyiapkan kamera di ruang tamu ketika aku sampai di kantor. Hari ini adalah jadwalnya membuat video intro untuk dokumentasi dan manual penggunaan aplikasi untuk klien. Rumput sintetis di ruang tamu seolah berdiri memanggilku untuk rebahan di atasnya. Aku duduk sebentar disitu sambil memperhatikan situasi kantor yang cukup senyap.
+Iman sedang sibuk menyiapkan kamera di ruang tamu ketika aku sampai di kantor. Hari ini adalah jadwalnya membuat video intro untuk dokumentasi dan manual penggunaan aplikasi untuk klien. Rumput sintetis di ruang tamu seolah berdiri memanggilku untuk rebahan di atasnya. Aku duduk sebentar disitu sambil memperhatikan situasi kantor yang cukup senyap.
 
 "Pada kemana Man yang lain?" tanyaku.
 
-"Masih pada di jalan kang" jawab Rahman.
+"Masih pada di jalan kang" jawab Iman.
 
 Aku masuk ke ruang karyawan. Baru ada beberapa orang saja disana, dan tidak kutemukan sosok Wina. Apakah dia tidak masuk kerja?
 
-Aku masuk ke ruang kerja founder dan menyalakan laptop seperti biasa. 
+Aku masuk ke ruang kerja founder dan menyalakan laptop seperti biasa. Sayup-sayup terdengar suara seperti Wina. Aku berjalan menuju ruang kelas training dan rupanya Wina ada disitu. Dia melihatku saat aku membuka pintu. Aku langsung kembali ke meja kerjaku, mengambil buku novel tulisan Wina milik adikku dan bergegas menuju ruang kelas.
 
-// Diberikannya saat Wina sedang di rumah supaya dia bisa langsung Konsul sama ortunya
-// Aku bertanya kapan dia pulang
-// Menjelang pulang kusuruh dia mengambil surat yang ada di meja kerjaku
-// Menunggu sinyal terakhir
+"Wina, lihaat!" kataku.
+
+"Waaah.." Wina tampak kaget karena aku memegang novel karyanya.
+
+"Minta tanda tangan yaa.." pintaku. Dia masih sumringah melihat buku novel karyanya sendiri seperti menemukan barang yang hilang.
+
+"Kak Harry beli ini?" tanya Wina.
+
+"Ini punya adik saya. Dia minta aku supaya bukunya ditandatangani sama teh Wina." kalau tidak, aku mungkin akan beli sendiri bukunya, tapi tak akan aku ceritakan pada siapapun. "Sekalian kasih catatan yah, quote atau nasihat gitu, adik saya masih agak kekanak-kanakan, padahal dia udah semester tujuh".
+
+"Oh ya. Quote apa ya? Wina jadi bingung.." kata Wina. Dia masih membolak-balik halaman bukunya.
+
+"Apa aja bebas, motivasi-motivasi gitu." kataku.
+
+"Motivasi apa *atuh*, aku juga orang yang masih butuh motivasi" jawab Wina.
+
+"Bilang aja supaya segera lulus kuliahnya dan segera nikah" kataku lagi.
+
+"Yah masa Wina suruh nikah, orang Wina aja belum nikah" ujar Wina. Situasi sunyi sejenak.
+
+"Ga apa-apa lah, siapa tau itu jadi doa juga buat kamu *kan*" jawabku sambil menahan tawa di perut. Hampir saja kalimat gombal mendarat tidak waktunya. Aku harus serasional mungkin. Tidak boleh ada ucapan gombal sebelum ucapan ijab kabul. 
+
+Wina mengembalikan buku itu padaku. Di halaman pertama ia torehkan tanda tangan dan nama lengkapnya Wina Lukmanul Hakim. Di bagian bawahnya ia tuliskan pesan singkat "*Halo Deta, cepet lulus dan cepet nemuin jodoh ya.. :)*". Aku aminkan dalam hati. Itu pilihan kalimat yang bagus. Meskipun Deta boleh dibilang punya teman dekat laki-laki, kalau tak ingin dibilang pacar, itu belum jadi jodohnya sampai ia naik ke jenjang pernikahan. 
+
+"Nuhun yaa Wina," kataku. Aku berlalu dari ruang kelas. Tiba-tiba aku ingat kata-kata Hendra, *sebaiknya kirim proposalnya pas dia lagi pulang, jadi dia bisa langsung diskusi sama ortunya*.
+
+"Oh ya Win, kamu kapan pulang kampung?" tanyaku dari lubang pintu.
+
+"Kenapa kak?" tanya Wina balik sambil tetap fokus pada laptopnya. Itu pertanyaan yang tidak aku perkirakan.
+
+"Eee.. saya mau nitip, sambel hehe.." jawabku, maksudnya nitip pesan sambel kemasan yang diproduksi oleh ibunya Wina. Saat kemarin dia balik lagi ke Bandung, dia membawa sambel itu. Rasanya nendang banget. Aku sudah pernah pesan sebelumnya. Untunglah sambel ibunya Wina itu terlintas di ingatanku.
+
+"Ga tau kak, kan baru pulang kemarin" jawab Wina. Kali ini dia bilang sambil melihatku.
+
+"Oh iya ya. Ya udah nanti aja nyantai." kataku. Aku khawatir dia akan menawarkan pengiriman online karena aku berharap untuk selanjutnya aku mencicipi sambelnya langsung di atas meja makan rumah mereka. Waduh, mulai berhalu lagi ini haha..
+
+
+
+## Nasihat Taqwa
+
+Aku nyaris telat menghadiri agenda yang sudah aku sanggupi untuk mengikutinya. Malam ini ada kegiatan diskusi Tautsiqul Jam'iyyah atau penguatan organisasi di Pemuda Persis PC Padalarang. Kegiatan dimulai pukul 19:30 dan aku masih di kantor jam 18:30. Biasanya durasi perjalanan bermotor dari kantor Bandung ke Padalarang itu sekitar 45 menit bila jalanan lancar. Kalau macet bisa sampai 1 jam lebih. Aku harus mampir dulu ke rumah untuk ganti baju dan bermain dulu sama anak-anak. Tapi aku tiba di Padalarang tepat pukul 19:30, sehingga akhirnya aku memutuskan untuk langsung ke kantor PC. Dugaanku benar, kegiatan belum dimulai.
+
+Aku duduk di jajaran paling depan, sebelahan dengan kang Heri, anggota Pemuda yang aku hanya bertemu dengannya di momen pengajian Pemuda saja. Dia bertanya kepadaku apakah sudah punya pasangan lagi. Aku bilang belum ada. Niat hati ingin bercerita progres yang sedang kujalani ini, tapi ini momen yang kurang tepat karena diskusi sebentar lagi dimulai. Tak lama ustadz Agus Priyatna sebagai ketua PW Pemuda Persis Jawa Barat maju ke depan dan memulai penjelasan materi.
+
+Singkat cerita proses diskusi selesai pada pukul setengah sepuluh malam. Hanya sedikit pertanyaan yang dapat dijawab karena waktu yang terbatas. Selesai diskusi semua anggota yang hadir dipersilakan untuk menyantap hidangan makanan berat yang sudah disediakan di ruangan sebelah. Acara ini terbilang ramai pengunjung. Tidak seperti agenda PC sebelum-sebelumnya yang hanya dihadiri oleh beberapa orang saja, acara kali ini --mungkin karena diisi oleh ketua PW, sehingga hampir setiap anggota jamaah menghadiri dan mengikuti acara dengan cukup antusias.
+
+Aku mengambil hidangan yang disediakan. Ada cukup banyak lauk, jauh lebih banyak daripada yang disediakan di agenda-agenda sebelumnya. Aku hanya mengalas sedikit saja dari nasi dan lauk yang ringan, karena aku tidak ingin banyak makan di malam hari, selain karena sudah makan juga di kantor tadi sore. Di ruangan utama sudah banyak anggota Pemuda yang makan bersama dalam lingkaran-lingkaran kecil. Aku tidak hapal semua anggota Pemuda Padalarang, jadi aku memilih bergabung dengan lingkaran yang mayoritas kukenal. Nampak satu badan yang cukup besar dan mendominasi percakapan di salah satu lingkaran. Aku menghampirinya dan duduk di sampingnya, ustadz Irfan, yang akrab dengan sebutan abah Ifank. Beliau sendiri yang ingin dipanggil seperti itu. Beliau adalah kepala sekolah madrasah ibtidaiyaah dimana Willy bersekolah. Di Pemuda Persis beliau menjabat sebagai wakil ketua di level Pimpinan Pusat. Meskipun beliau orang nomor dua di Pemuda Persis, beliau tetap memposisikan dirinya sebagai anggota di setiap agenda Pemuda Persis di daerah, terkecuali bila posisi beliau dibutuhkan sebagai perwakilan Pimpinan Pusat. 
+
+"Weiss Harry, sini sini.." beliau mempersilakanku duduk. Abah Ifank sudah kuanggap seperti kakakku sendiri. Beliau adalah guru agamaku saat aku masih SD dulu. Beliau hadir saat aku menikah dulu dan beliau juga hadir saat istriku meninggal. "Kumaha, tos aya deui cecepengan teh?" tanya Abah, bertanya apakah aku sudah punya gandengan lagi alias calon istri.
+
+"Belum, Bah" jawabku. "Tapi sudah ada inceran mah".
+
+"Anak Persis juga? Orang mana?"
+
+"Iya alumni Benda juga. Adik kelas tapi jaraknya sekitar 6 tahunan."
+
+"Sudah ditanya belum?"
+
+"Belum, Bah" jawabku. Seolah paham apa yang sedang kujalani Abah Ifank memberiku nasihat menarik.
+
+"Yeuh, kalo sudah ada niat, jangan ditunda-tunda. Segerakan. Kalau belum pasti, pastikan." Nasihatnya mirip dengan nasihat mentor bisnisku saat pembinaan pekanan Senin lalu. "Niatkan untuk ibadah karena Allah. Kalau agamanya sudah baik, dan kamunya *sreg*, dilihat *bikin* nyaman, *geura puguhkeun*!" maksudnya segera pastikan.
+
+"Satu lagi," Abah seolah ingin memungkas nasihat, "Kita tidak tahu siapa yang akhirnya bakal jadi jodoh kita. Tapi siapapun itu, kalau niatnya karena Allah, in syaa Allah pasti dimudahkan. Kalaupun ditolak, tinggal cari lagi yang lain, ga akan *ngeper* karena sejak awal niat kita untuk beribadah." Nasihat Abah membuatku merasa tercerahkan. "Tapi kalau Harry mah jigana moal ditolak sih hehe.." Kalimat ini membuatku semakin optimis. "Tapi andaikata ditolak pun ga masalah, berarti memang tidak cocok buat antum." Kalimat terakhir ini membuatku stabil kembali. Aku seperti membayangkan sedang memasukkan semua angan-angan liarku dengan Wina bila jadi menikah ke dalam satu lemari besar dan menutupnya rapat-rapat, menguncinya dan kusimpan kuncinya di tempat yang hanya akan kutemukan lagi bila aku jadi menikah dengannya. Kupikir ini adalah tindakan strategis yang harus ditempuh sebagai seorang pemimpin, mulai dari memimpin diri sendiri.
+
+"In syaa Allah, Bah" jawabku pendek dan yakin.
+
+"Jadi kapan mau memastikan?" tanya Abah sambil menatap mataku menunggu aku memberikan jawaban tegas.
+
+"In syaa Allah besok" kupikir tidak perlu menunggu Wina pulang kampung dulu.
+
+"Tapi Bah, dia teh sekantor sama saya. Kira-kira bakal ngaruh ga ya ke kerjaan kantor?" tanyaku meminta pendapat.
+
+"Hmm.. pasti bakal ngaruh sih, baik itu bila dia menerima ataupun menolak. Tergantung bagaimana antum meyakinkan dia untuk tetap profesional dalam bekerja." jawab Abah. "Ga apa-apa, bismillah aja"
+
+Aku tidak berlama-lama di kantor PC. Sesaat setelah mencuci tangan dan piring bekas sendiri, aku langsung pamit ke semua anggota yang masih ada. Termasuk ke Abah dan jajaran tasykil lainnya. Aku bilang ada tugas masa depan yang menunggu untuk dieksekusi. Mereka bilang ciee ciee.. aku respon dengan tertawa saja.
+
+* * * 
+
+Semalaman suntuk aku membuat tulisan pendek untuk menjelaskan duduk perkara yang sedang kualami ini. Di bagian akhir tulisan itu aku membuat paragraf pamungkas yang menjelaskan maksud dari tulisan tersebut. Ya, aku mengurungkan niatku untuk memberikan CV taaruf secara langsung kepada Wina. Hanya sepucuk surat digital yang nantinya akan kusimpan di website pribadiku dan kuberikan tautan untuk mengaksesnya kepada Wina via WhatsApp. Aku tidak terlalu yakin apakah pesan yang kutulis ini cukup jelas untuk memberi tahu Wina kalau aku punya maksud untuk melamarnya. Karenanya di bagian akhir tulisan tersebut aku menegaskan pertanyaan yang harus dia jawab YA atau TIDAK. Aku sudah menyiapkan dua buah tombol dengan label Ya dan Tidak yang bisa dia tekan salah satunya, yang nantinya tombol tersebut akan mengirimkan notifikasi ke aplikasi Telegram Messengerku via Telegram Bot yang sudah kubuat.
+
+Seharian di kantor kali ini aku tidak fokus bekerja. Aku menunggu jam sore kepulangan karyawan agar aku bisa segera memberikan link tulisan ini kepada Wina. Aku ingin dia membacanya di kosannya. Sisa waktu menuju kesana kuhabiskan dengan membaca buku karya Wina yang kemarin sudah dia tandatangani. Belum sempat kuberikan kepada adikku karena aku belum berkunjung lagi ke rumah ibu mertua.
+
+Semakin lama menunggu semakin hati ini dagdigdug ga karuan. Aku mencoba menghela nafas panjang, berjalan-jalan di ruangan kantor, bermain gitar bersama Tama, menyetel Youtube, bernyanyi-nyanyi dengan suara ga jelas. Sesekali terdengar suara anjing-anjing tetangga menggonggong, ayam-ayam berkokok sambil buang kotoran di teras depan kantor, dan burung-burung tetangga berkicau riang dari dalam sarangnya, tak jelas apakah ia menikmati hidupnya di dalam sana ataukah meratapi nasibnya yang jauh dari kebebasan seperti burung-burung lainnya yang terbang lewat. Waktu berjalan cukup lambat sampai aku bisa mengamati sisi perut dan telapak kaki cicak kecil yang berjalan di bagian luar permukaan kaca ruang kantor.
+
+Tombol manapun yang dia pilih untuk diklik tidak boleh melunturkan profesionalitasnya bekerja di kantor ini, begitu pula dengan aku. Mungkin lebih tepatnya, kalau dia mengklik tombol Tidak, maka kehidupan haruslah berjalan sebagaimana biasanya, seolah tidak pernah ada pesan tertulis yang kubuat untuknya. Andaikata pun dia mengklik tombol Ya, maka yang terjadi setelah itu bisa dibahas lebih lanjut. Lagipula masih ada satu langkah lagi yang harus kulalui setelah dia menerima proposal penawanku, yakni meyakinkan orang tuanya untuk juga dapat menerimaku sebagai menantu mereka. Saat ini biar kusimpan dahulu bahan pemikiran itu untuk nanti.
+
+"Kak Harry Wina pulaaang" tanda jam sudah menunjukkan pukul lima sore.
+
+"Iya Win, thanks yaa untuk hari ini" jawabku.
+
+Aku langsung mengirimkan satu pesan ke WhatsAppnya,
+
+```
+Win, cek link ini ya. Aku bikin tulisan pendek.
+https://s.id/isyarat
+Bacanya harus berurutan dari atas sampai bawah supaya bisa dipahami.
+```
+
+Wina pun menjawab,
+
+```
+Oke Kak ntar Wina baca.
+```
+
+Aku kirim lagi pesan,
+
+```
+Btw bagian akhirnya ada kuestioner, tolong bantu dikerjakan juga yaa
+```
+
+Dia tak membalas lagi pesanku.
+
+Wina, apakah kamu bisa memahami maksud tulisanku itu?
+
+
 
 ## Isyarat Terakhir
 
 ''*krik krik*'' suara tanda ada pesan masuk ke smartphonenku. Saat itu aku sedang *on-wire* mengerjakan bagian penting dari sistem informasi kantorku. *Task* ini harus selesai hari ini, karena harus *launch* awal bulan depan atau sekitar 2 hari lagi. Besok harus sudah bisa dites supaya lusa bisa diumumkan sesuai jadwal.
 
-Tapi suara jangkrik tadi rasanya berbeda dari biasanya. Tentu saja harusnya tidak berbeda karena tidak ada pengaturan khusus untuk suara jangkrik lain untuk kondisi tertentu di hapeku. Aku padahal sudah menyimpan jauh-jauh dari jangkauan tangan, tapi tubuhku seolah berdiri sendiri ingin meraih hape itu. Aku berjalan dengan sangat ringan, dan tidak terlalu khawatir akan buyarnya fokusku. Bahkan kode program yang sedang kukerjakan belum aku *save*. Kulihat layar hapeku dan ada beberapa notifikasi dari email, WhatsApp dan juga Telegram. Satu pesan yang paling menarik minatku untuk kubuka, adalah pesan Telegram dengan nama kontak Penengah_bot. Aku segera membukanya tanpa ingin menerka-nerka isinya. Ibu jari kiriku bergerak gesit seolah hendak mendahului kecepatan detak jantungku.
+Tapi suara jangkrik tadi rasanya berbeda dari biasanya. Tentu saja harusnya tidak berbeda karena tidak ada pengaturan khusus suara jangkrik lain untuk kondisi tertentu di hapeku. Aku padahal sudah menyimpan jauh-jauh dari jangkauan tangan, tapi tubuhku seolah berdiri sendiri ingin meraih hape itu. Aku berjalan dengan sangat ringan, dan tidak terlalu khawatir akan buyarnya fokusku. Bahkan kode program yang sedang kukerjakan belum aku *save*. Kulihat layar hapeku dan ada beberapa notifikasi dari email, WhatsApp dan juga Telegram. Satu pesan yang paling menarik minatku untuk kubuka, adalah pesan Telegram dengan nama kontak Penengah_bot. Aku segera membukanya tanpa ingin menerka-nerka isinya. Ibu jari kiriku bergerak gesit seolah hendak mendahului kecepatan detak jantungku.
 
 Kau tau, hanya ada dua kemungkinan pesan yang masuk lewat bot telegram ini. Ya dan Tidak. Seperti yang kau tau, aku telah membuat sebuah aplikasi sederhana untuk menuangkan semua kesimpulan isyarat yang sudah kutangkap dan kukumpulkan dengan teliti selama dua minggu terakhir ini. Semuanya untuk satu momen ini. Tombol manapun yang Wina tekan, akan terkirim kepadaku melalui bot ini. 
 
-Semua isyarat itu selalu mengarah ke satu nama, Wina. Sejak datang isyarat pertama, sudah kutahan diri ini sepenuh tenaga supaya tak ada seorang pun yang dapat menerka gelagatku atas perasaan yang semakin lama semakin membesar. Aku sadar betul aku orang dengan ekspresi wajah yang mudah sekali ditebak. Semua temanku mengatakan hal itu. Ketika aku menyukai seseorang, sekalipun aku mengelak, teman-temanku selalu saja tahu kalau aku punya ketertarikan pada orang itu. Maka dari itu, kali ini, aku coba tutupi perasaanku ini dengan menjadi over realistis. Yah, berharap kalau aku keburu mati dengan memendam perasaan ini, aku termasuk orang yang mati syahid. Sangat lumayan untuk diperjuangkan.
+Semua isyarat itu selalu mengarah ke satu nama, Wina. Sejak datang isyarat pertama, sudah kutahan diri ini sepenuh tenaga supaya tak ada seorang pun yang dapat menerka gelagatku atas perasaan yang semakin lama semakin membesar. Aku sadar betul aku orang dengan ekspresi wajah yang mudah sekali ditebak. Semua teman dekatku mengatakan hal itu. Ketika aku menyukai seseorang, sekalipun aku mengelak, teman-temanku selalu saja tahu kalau aku punya ketertarikan pada orang itu. Maka dari itu, kali ini, aku coba tutupi perasaanku ini dengan menjadi *over* realistis. Yah, berharap kalau aku keburu mati dengan memendam perasaan ini, aku termasuk orang yang mati syahid. Sangat lumayan untuk diperjuangkan.
 
 Aku pernah berdiskusi dengan guru bahasa Indonesiaku di SMP. Sambil memegang kertas tugas mengarangku, waktu itu beliau bilang kalalu aku berbakat menulis. Beliau lalu memberiku satu tips bagus supaya tulisanku lebih menarik untuk dibaca. Sentakan akhir. *Yup*, sentakan akhir ini bisa berupa hal yang tidak terduga, dengan ending yang terang benderang dan memukau si pembaca. 
 
-Tapi kali ini aku ingin bereksperimen. Kau pasti tau, ada banyak film bagus yang endingnya dikembalikan kepada imajinasi penonton. Si sutradara ingin para penonton karyanya dapat menikmati imajinasinya sendiri, agar tidak terbuai dengan gambar dan plot yang disajikan dan berhenti begitu saja setelah filmnya selesai. Tapi jangan salah sangka. Aku tidak ingin membuat tulisan semacam itu. Lebih tepatnya aku ingin ada ending untuk akhir tulisanku, tapi aku juga belum tahu bagaimana akhir kisah tulisanku. Sepertinya akan cukup menarik bila endingnya kukembalikan kepada pembaca. Maka dari itu aku sudah menyiapkan dua buah tombol di bawah ini. 
+Tapi kali ini aku ingin bereksperimen. Kau pasti tau, ada banyak film bagus yang endingnya dikembalikan kepada imajinasi penonton. Si sutradara ingin para penonton karyanya dapat menikmati imajinasinya sendiri, agar tidak terbuai dengan gambar dan plot yang disajikan dan berhenti begitu saja setelah filmnya selesai. Tapi jangan salah sangka. Aku tidak ingin membuat tulisan semacam itu. Lebih tepatnya aku ingin ada ending untuk akhir tulisanku, tapi aku juga belum tahu bagaimana akhir kisah tulisanku. Sepertinya akan cukup menarik bila endingnya kukembalikan kepada kamu sebagai pembaca. Maka dari itu aku sudah menyiapkan dua buah tombol di bawah ini. 
 
-Sekarang bayangkan. Andaikata kamu adalah tokoh Wina, dan aku sebagai penulis adalah tokoh Harry, kira-kira tombol mana yang akan kamu tekan? Oke, biar kuperjelas. Bila kamu yang membaca tulisan ini adalah Hani Widiani, tokoh Harry dalam kisah di atas adalah penulis, dan Wina adalah Kamu, aku harap kamu berkenan untuk menekan salah satu dari dua tombol di bawah ini. Sebagai catatan, tombol manapun yang kau tekan, tidak akan mempengaruhi profesionalitas kita di dalam bekerja di perusahaan, hingga waktu yang ditentukan. Kalau kamu bingung dan bimbang, dengan baik hati aku sudah menyiapkan dua tombol bantuan lagi di bawahnya. Hehe.. Selamat memilih :)
+Sekarang ayo kita berandai-andai. Andaikata kamu adalah tokoh Wina, dan aku sebagai penulis adalah tokoh Harry, kira-kira tombol mana yang akan kamu tekan? Oke, biar kuperjelas. Bila kamu yang membaca tulisan ini adalah Hani Widiani, tokoh Harry dalam kisah di atas adalah penulis, dan Wina adalah Kamu, aku harap kamu berkenan untuk menekan salah satu dari dua tombol di bawah ini. Sebagai catatan, tombol manapun yang kau tekan, tidak akan mempengaruhi profesionalitas kita di dalam bekerja di perusahaan. *So, feel free to choose*. Kalau kamu bingung dan bimbang, kamu boleh istikharah dulu atau meminta pendapat ortumu dulu. :)
 
-Ya	/	Tidak
-
-Istikharah dulu	/	Tanya ortu dulu
+*To be continue*..
