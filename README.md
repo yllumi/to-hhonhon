@@ -498,3 +498,9 @@ Aku pernah berdiskusi dengan guru bahasa Indonesiaku di SMP. Sambil memegang ker
 Tapi kali ini aku ingin bereksperimen. Kau pasti tau, ada banyak film bagus yang endingnya dikembalikan kepada imajinasi penonton. Si sutradara ingin para penonton karyanya dapat menikmati imajinasinya sendiri, agar tidak terbuai dengan gambar dan plot yang disajikan dan berhenti begitu saja setelah filmnya selesai. Tapi jangan salah sangka. Aku tidak ingin membuat tulisan semacam itu. Lebih tepatnya aku ingin ada ending untuk akhir tulisanku, tapi aku juga belum tahu bagaimana akhir kisah tulisanku. Sepertinya akan cukup menarik bila endingnya kukembalikan kepada kamu sebagai pembaca. Maka dari itu aku sudah menyiapkan dua buah tombol di bawah ini. 
 
 Sekarang ayo kita berandai-andai. Andaikata kamu adalah tokoh Wina, dan aku sebagai penulis adalah tokoh Harry, kira-kira tombol mana yang akan kamu tekan? Sebagai catatan, tombol manapun yang kau tekan, tidak akan mempengaruhi profesionalitas kita di dalam bekerja di perusahaan. *So, feel free to choose*. Kalau kamu bingung dan bimbang, kamu boleh istikharah dulu atau meminta pendapat ortumu dulu. :)
+
+<div id="questioner" style="background-color: #0e2539; padding:10px 20px 20px;">
+	<p class="text-dark">Apakah Kamu bersedia menerima lamaran Harry?</p>
+	<button onclick="ya()" style="padding: 10px;min-width: 100px;font-size: 1em;background-color: #3e586e; border: 0;">Ya</button>
+	<button onclick="tidak()" style="padding: 10px;min-width: 100px;font-size: 1em;background-color: #3e586e; border: 0;">Tidak</button>
+</div>
