@@ -22,7 +22,7 @@ Suasana masjid maghrib ini tidak berbeda dari hari-hari biasanya, selain karpetn
 
 Dari shaf ketiga, selepas sholat, aku melihat ustadz Acep yang sedang ngobrol dengan seseorang yang aku kenal wajahnya karena beliau selalu ada setiap aku ke masjid. Tapi aku tidak pernah tahu namanya. Mungkin hanya 5% saja dari total jamaah masjid yang aku kenal wajah dan namanya. Ustadz Acep melihat ke arahku, dengan masker yang masih menutupi wajahnya. Aku bisa mengenali ustadz Acep dan juga jamaah lainnya meskipun sebagian wajah mereka tertutup masker. Tak lama kemudian ustadz Acep menghampiriku. Aku pun beranjak berdiri. Kami bersalaman dan kutempelkan punggung tangan beliau ke dahiku.
 
-"Tos nikah te acan?" artinya sudah menikah atau belum. Pertanyaan pertama yang aku bikin kaget. Umumnya saat pertama kali bertemu, orang-orang akan mengucapkan belasungkawa atas kematian istriku. Ustadz Acep memang berbeda, dan itu yang membuatku merasa diperhatikan oleh sang guru. Aku sudah belajar agama dari beliau sejak usiaku masih SD.
+"Tos nikah te acan?" artinya sudah menikah atau belum. Pertanyaan pertama yang bikin aku kaget. Umumnya saat pertama kali bertemu, orang-orang akan mengucapkan belasungkawa atas kematian istriku. Ustadz Acep memang berbeda, dan itu yang membuatku merasa diperhatikan oleh sang guru. Aku sudah belajar agama dari beliau sejak usiaku masih SD.
 
 "Te acan ustadz" aku jawab belum.
 
@@ -54,7 +54,7 @@ Aku selalu berusaha membiasakan menyapa teman-teman karyawan meskipun sekedarnya
 
 Aku kemudian menyimpan tasku di bawah meja kerjaku dan menyalakan laptop. Sambil menunggu laptop menyala aku panggil Willy dan bilang padanya supaya menjaga adiknya selama bermain. Ia mengangguk. Aku siapkan beberapa mainan dan buku anak yang dibawa dari rumah supaya sang adik bisa bermain dengan *anteng* di atas rumput sintetis di ruang depan kantor. Adapun kakaknya hanya membawa beberapa mainan mobilan *diecast*. Dia sibuk bermain sendiri dengan mobilnya, sambil berlari-lari dengan posisi mobil tepat di depan hidungnya. Aku yakin dia sedang memutar ulang ingatannya akan video rekaman permainan game balapan yang ia lihat dari Youtube.
 
-Hari itu rasanya suntuk sekali. Ya, mungkin tidak hanya hari itu saja. Hampir 2 bulan pertama semenjak istriku wafat aku tidak fokus kerja. Aku seperti orang linglung, menatap kode program di layar laptopku tapi sama sekali tidak paham apa yang tertulis disitu. Aku sempat khawatir tiba-tiba saja skill ngodingku hilang dalam sekejap. Tapi itu masih tidak dapat mengalahkan kekhawatiran akan nasib anak-anakku yang kini tidak punya ibu. Aku bersyukur masih punya orang tua yang lengkap. Ibuku yang merawat anak pertama dan keduaku. Sedangkan anak ketigaku yang belum sampai 1 tahun usianya dirawat oleh ibu mertuaku. Setidaknya mereka punya sosok pengganti ibu yang bisa mengasihi mereka dengan lembut.
+Hari itu rasanya suntuk sekali. Ya, mungkin tidak hanya hari itu saja. Hampir 2 bulan pertama semenjak istriku wafat aku tidak fokus kerja. Aku seperti orang linglung, menatap kode program di layar laptopku tapi sama sekali tidak paham apa yang tertulis disitu. Aku sempat khawatir tiba-tiba saja skill ngodingku hilang dalam sekejap. Tapi itu masih tidak dapat mengalahkan kekhawatiran akan nasib anak-anakku yang kini tidak punya ibu. Aku bersyukur masih punya orang tua yang lengkap. Ibuku-lah yang merawat anak pertama dan keduaku. Sedangkan anak ketigaku yang belum sampai 1 tahun usianya dirawat oleh ibu mertuaku. Setidaknya mereka punya sosok pengganti ibu yang bisa mengasihi mereka dengan lembut.
 
 Yaps, aku punya 3 anak. Bagi sebagian orang, untuk usiaku yang baru 31 hal itu adalah sebuah prestasi. Aku tidak menganggapnya demikian. Punya anak bagiku adalah kewenangan mutlak bagi Sang Pencipta. Aku hanya dititipi saja. Dengan pola pikir seperti itu aku bisa sedikit lebih tegar melihat mereka bermain dengan riang. Mereka belum paham apa yang sebenarnya telah menimpa mereka. Saat kita dititipi sesuatu, maka tugas kita hanyalah merawatnya agar saat diambil kembali oleh pemiliknya, ia tetap dalam keadaan baik dan tidak rusak. Apalagi bila titipan itu adalah seorang anak, atau 3 orang anak. Bagiku tugasku hanyalah merawat dan mendidik mereka. Segala kebutuhan mereka tentulah Ia Yang Menitipkannya sudah menyiapkan juga.
 
@@ -394,7 +394,7 @@ Aku masuk ke ruang kerja founder dan menyalakan laptop seperti biasa. Sayup-sayu
 
 "Yah masa Wina suruh nikah, orang Wina aja belum nikah" ujar Wina. Situasi sunyi sejenak.
 
-"Ga apa-apa lah, siapa tau itu jadi doa juga buat kamu *kan*" jawabku sambil menahan tawa di perut. Hampir saja kalimat gombal mendarat tidak waktunya. Aku harus serasional mungkin. Tidak boleh ada ucapan gombal sebelum ucapan ijab kabul. 
+"Ga apa-apa lah, siapa tau itu jadi doa juga buat kamu *kan*" jawabku sambil menahan tawa di perut. Hampir saja kalimat gombal mendarat tidak pada waktunya. Aku harus serasional mungkin. Tidak boleh ada ucapan gombal sebelum ucapan ijab kabul. 
 
 Wina mengembalikan buku itu padaku. Di halaman pertama ia torehkan tanda tangan dan nama lengkapnya Wina Lukmanul Hakim. Di bagian bawahnya ia tuliskan pesan singkat "*Halo Deta, cepet lulus dan cepet nemuin jodoh ya.. :)*". Aku aminkan dalam hati. Itu pilihan kalimat yang bagus. Meskipun Deta boleh dibilang punya teman dekat laki-laki, kalau tak ingin dibilang pacar, itu belum jadi jodohnya sampai ia naik ke jenjang pernikahan. 
 
@@ -466,23 +466,16 @@ Tombol manapun yang dia pilih untuk diklik tidak boleh melunturkan profesionalit
 
 Aku langsung mengirimkan satu pesan ke WhatsAppnya,
 
-```
-Win, cek link ini ya. Aku bikin tulisan pendek.
-https://s.id/isyarat
-Bacanya harus berurutan dari atas sampai bawah supaya bisa dipahami.
-```
+> Win, cek link ini ya. Aku bikin tulisan pendek. https://s.id/isyarat.
+> Bacanya harus berurutan dari atas sampai bawah supaya bisa dipahami.
 
 Wina pun menjawab,
 
-```
-Oke Kak ntar Wina baca.
-```
+> Oke Kak ntar Wina baca.
 
 Aku kirim lagi pesan,
 
-```
-Btw bagian akhirnya ada kuestioner, tolong bantu dikerjakan juga yaa
-```
+> Btw nanti di bagian akhirnya ada kuestioner, tolong bantu dikerjakan juga yaa
 
 Dia tak membalas lagi pesanku.
 
