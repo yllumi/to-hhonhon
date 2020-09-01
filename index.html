@@ -25,7 +25,7 @@
 
           <div id="content"></div>
 
-          <div class="my-3 bg-secondary p-3" id="questioner">
+          <div class="my-3 bg-secondary p-3 sr-only" id="questioner">
             <p class="text-dark">Apakah Kamu bersedia menerima lamaran Harry?</p>
             <button id="ya" class="btn btn-primary">Ya</button>
             <button id="tidak" class="btn btn-primary">Tidak</button>
@@ -52,6 +52,7 @@
             var converter = new showdown.Converter(),
             html = converter.makeHtml(text);
             $('#content').html(html);
+            $('#questioner').removeClass('sr-only');
           });
         });
 
