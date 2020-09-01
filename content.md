@@ -196,7 +196,7 @@ Suhu udara malam ini lebih dingin dari biasanya. Tetapi kami tetap berhenti di s
 
 "Gue coba mantapkan hati dulu Bro"
 
-## Stempel Lilin
+## Rem
 
 "Bro, kayaknya gw mau melayangkan surat penawaran" kukirim pesan kepada Erlang.
 
@@ -338,14 +338,16 @@ Kulihat jam di smartphoneku menunjukkan pukul 3. Aku bermimpi bersama Wina. *Hal
 
 Seperti biasa setiap hari Senin semua mitra mentoring bisnis yang aku ikuti diwajibkan untuk mengikuti pembinaan pekanan. Pembinaan pekanan dilakukan secara online pada pukul 3 dini hari. Sebelum meeting dimulai semua mitra diharuskan untuk shalat tahajjud dahulu minimal 2 rokaat. Baru kali ini aku menemukan komunitas bisnis yang ga cuma bahas soal kewirausahaan dan finansial. Bahkan Ramadhan kemarin sebagian besar pembinaan diisi oleh para ustadz dan ulama.
 
-Pembinaan kali ini berfokus pada bagaimana mendatangkan percepatan rezeki dengan sinergi sayap-sayap bidadari. Maksudnya adalah keridhaan orang tua dan juga pasangan. Dalam menjalankan bisnis, orang tua perlu mengetahui bisnis apa yang sedang kita jalani. Dengan begitu mereka dapat mendoakan kesuksesan bisnis kita dengan lebih ridha. Begitu pula dengan keridhaan pasangan hidup kita, suami atau istri. Pasangan hidup perlu tau apa yang kita usahakan sehingga mereka dapat memahami dan mendukung dengan sepenuh hati. Dukungan orang tua dan pasangan akan mempercepat kesuksesan dalam bisnis.
+Pembinaan kali ini berfokus pada bagaimana mendatangkan percepatan rezeki, salah satunya dengan sinergi sayap-sayap bidadari. Sayap-sayap bidadari yang dimaksud adalah keridhaan orang tua dan juga pasangan. Dalam menjalankan bisnis, orang tua perlu mengetahui bisnis apa yang sedang kita jalani. Dengan begitu mereka dapat mendoakan kesuksesan bisnis kita dengan lebih ridha. Begitu pula dengan keridhaan pasangan hidup kita, suami atau istri. Pasangan hidup perlu tau apa yang kita usahakan sehingga mereka dapat memahami dan mendukung dengan sepenuh hati. Dukungan orang tua dan pasangan akan mempercepat kesuksesan dalam bisnis.
 
-Pembahasan akhirnya menjalar ke problematika para jomblo. Entah berapa banyak pasangan yang menunda-nunda pernikahan hanya karena uangnya belum cukup untuk resepsi di gedung dan lain-lain. Ada juga yang menunda karena faktor kebiasaan dan adat-istiadat. Misalnya menunda karena kakaknya belum menikah. Mentor kami berpesan untuk menyederhanakan resepsi. Kalaupun ada rezeki lebih, lebih baik besarkan di mahar, bukan di resepsi. Selain menyederhanakan, juga harus menyegerakan. Rahmat Allah dekat dengan hamba yang bersegera dalam kebaikan.
+Dari situ pembahasan menjalar ke problematika para jomblo. Entah berapa banyak pasangan yang menunda-nunda pernikahan hanya karena uangnya belum cukup untuk resepsi di gedung dan lain-lain. Ada juga yang menunda karena faktor kebiasaan dan adat-istiadat. Misalnya menunda karena kakaknya belum menikah. Mentor kami berpesan untuk menyederhanakan resepsi. Kalaupun ada rezeki lebih, lebih baik besarkan di mahar, bukan di resepsi. "Dengan membesarkan mahar, minimal kalau lagi BU bisa pinjam dulu sama istri hehehe.." begitu gurauan sang mentor. Selain disederhanakan, menikah juga harus disegerakan. Rahmat Allah dekat dengan hamba yang bersegera dalam kebaikan.
+
+Apakah ini bagian dari isyarat untukku menyegerakan? Mungkin saja kebetulan, tapi tidak ada kebetulan di sisi Allah. Semua sudah *by design*. Kadang suka berpikir bagaimana kalau ditolak haha.. Aku lalu kembali mengingat materi yang sudah pernah lupelajari, bahwa kepasrahan kita kepada Allah akan mendatangkan kebaikan di sisi Allah. Setiap hal yang kutemui yang kuanggap isyarat adalah bagian dari *husnuzhan*-ku kepada Allah. Bilapun tidak jadi, maka tentulah ada hal lain yang Allah ingin aku belajar darinya, dan tentunya itu pun baik untukku.
+
+Selepas shalat shubuh aku kembali duduk di depan laptop. Aku membuka satu dokumen yang dulu pernah kubuat, dokumen *curriculum vitae* pribadi. Tapi CV yang ini sedikit berbeda. Ini CV taaruf. Ada tambahan informasi lain seperti gambaran fisik diri, gambaran keluarga, ikhtiar kesiapan menikah, visi dan misi pernikahan, kriteria calon pasangan, sampai harapan-harapan pasca pernikahan. Aku merasa perlu memperbaharui isi dokumen tersebut, terutama setelah banyak wawasan baru yang kudapatkan dari kelas pranikah online beberapa waktu yang lalu. Informasi kelas online itu juga kudapatkan dari Instagram Story Wina. Seolah ia mengatakan kalau ingin melamarku upgrade dulu ilmu tentang pernikahannya. Haha.. lagi-lagi halu. Sepertinya aku memang punya potensi menjadi seorang penulis novel dengan bakat imajinasiku ini.
 
 
 
-
-// hoki beruntung, husnuzhan
 // Membuat surat penawaran ta'aruf, digital
 // Diberikannya saat Wina sedang di rumah supaya dia bisa langsung Konsul sama ortunya
 // Aku bertanya kapan dia pulang
